@@ -15,7 +15,7 @@
 
 <table><tr><td valign="top" width="50%">
 
-- BYANONYMS┊Gamer, Coder <br>
+- BYANONYM | XAREN-AXEL_MRX <br>
 - info@fatihcetinkaya.cf <br>
 
 
