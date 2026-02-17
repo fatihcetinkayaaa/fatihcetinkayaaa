@@ -1,4 +1,4 @@
-## BYANONYMS 👋 FATİH ÇETİNKAYA
+## BYANONYM_S 👋 FATİH ÇETİNKAYA
   
 
 <a href="https://instagram.com/fatihcetinkaya__" target="_blank">
@@ -15,7 +15,7 @@
 
 <table><tr><td valign="top" width="50%">
 
-- BYANONYM | XAREN-AXEL_MRX <br>
+- BYANONYM_S | XAREN-AXEL_MRX <br>
 - info@fatihcetinkaya.cf <br>
 
 
